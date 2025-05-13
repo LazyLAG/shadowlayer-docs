@@ -21,3 +21,7 @@ Se tiveres dúvidas ou quiseres saber mais sobre o projeto, podes entrar em cont
 syvb01@gmail para Sérgio Yuri Vidal Benrós LazyLAG
 
 ou https://x.com/alvez_nana0z sugiro este contacto pois é bastante mais ativa e atenta que eu.
+
+Apoie este projeto com criptomoedas 🚀 
+
+0x5C97A1E25B7447d053EF1F62bB1CEc6f8629a03e
